@@ -1,1 +1,1 @@
-# curly-fiesta
+Minha conclusão depois de comparar planos funerários: não existe o melhor para todo mundo. Quem quer uma rede enorme, com presença em mais de 2 mil cidades, deve olhar o Grupo Zelo. Quem gosta de resolver pelo celular e tem pais mais velhos pode consultar a Amar Assist, que tem opções para idades avançadas. Já a Ciclo Assist me pareceu ótima para quem quer tanatopraxia e traslado de até 300 km no pacote. Achei a lista completa em https://prooffeed.com/pt/planos-funer%C3%A1rios-no-brasil e vale ler até o fim.# curly-fiesta
